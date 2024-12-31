@@ -6,5 +6,15 @@
 
 ![image](https://github.com/user-attachments/assets/147f95c7-97c9-4592-86ae-fa5274cf2a2e)
 
+<img width="841" alt="Screenshot 2024-12-30 at 8 22 29 PM" src="https://github.com/user-attachments/assets/acb5c1ba-f423-4ce9-ba9e-7995187cc663" />
+
+<img width="646" alt="Screenshot 2024-12-30 at 8 22 44 PM" src="https://github.com/user-attachments/assets/60864e8d-4599-4597-9b17-467afda2fdcd" />
+
+<img width="648" alt="Screenshot 2024-12-30 at 8 23 05 PM" src="https://github.com/user-attachments/assets/094b7c52-e579-42fb-9ff4-b6b92bf7033e" />
+
+<img width="632" alt="Screenshot 2024-12-30 at 8 22 51 PM" src="https://github.com/user-attachments/assets/1cdbcab2-c8a2-4237-a699-5c8945e449d8" />
+
+<img width="652" alt="Screenshot 2024-12-30 at 8 22 58 PM" src="https://github.com/user-attachments/assets/f49ab3fc-4df7-4857-8ab6-83bb4974261c" />
+
 
 
